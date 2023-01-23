@@ -1,6 +1,6 @@
 ### Sup 🤘
 
-- ⚡ Electrical Engineering 👨‍🎓
+- ⚡ Electrical Engineer ⚙
 - 👨‍💻 Learning programming and all about the tech world 💻
 - 🧠 Passion for learning 📚
 - 🏎️ Gearhead and musician 🎸
