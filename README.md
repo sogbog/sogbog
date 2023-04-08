@@ -1,7 +1,7 @@
 ### Sup 🤘
 
 - ⚡ Electrical Engineer ⚙
-- 👨‍💻 Learning programming and all about the tech world 💻
+- 👨‍💻 Jr. Fullstack developer 💻
 - 🧠 Passion for learning 📚
 - 🏎️ Gearhead and musician 🎸
 
